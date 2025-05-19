@@ -1,4 +1,4 @@
-# Night Shift Nurses
+# Introduction on Night Shift Nurses
 
 *A washed-up mad doctor is hired back by a devious former test subject and asked to twist her hospital into a corrupt donation mill. Will he seize this second chance to practice his own vision of "science," or will his many failings drag him down once again in this pseudo-medical visual novel?*
 
